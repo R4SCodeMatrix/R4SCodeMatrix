@@ -19,7 +19,8 @@ I'm looking to collaborate on projects involving:
 
 ### 📫 How to Reach Me  
 - **Email:** r4scodematrix2025@outlook.com	| aedelivarynote@gmail.com  |  r4scodematrix2024@outlook.com
-- **YouTube Channel:** [R4S CodeMatrix](https://www.youtube.com/@R4SCodeMatrix)  
+- **YouTube Channel:** [R4S CodeMatrix](https://www.youtube.com/@R4SCodeMatrix)
+- **WhatsApp:** [Chat with me on WhatsApp](https://wa.me/+94754680407)  
 
 
 ### 😄 Pronouns  
